@@ -1,0 +1,2 @@
+# AndikaPratama
+Kuliah BSI Aja
